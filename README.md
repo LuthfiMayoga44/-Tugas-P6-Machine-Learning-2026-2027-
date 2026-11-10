@@ -1,4 +1,4 @@
 Anggota kelompok:
-Azzahra Kusuma Z S
-Egi Abdul Aziz
-Luthfi Mayoga
+1. Azzahra Kusuma Z S
+2. Egi Abdul Aziz
+3. Luthfi Mayoga
